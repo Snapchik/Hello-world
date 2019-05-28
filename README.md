@@ -2,4 +2,8 @@
 
 Hey what's up!
 
-Timur is here, i'm new to all this stuff.
+Timur is here, i'm all new and ready.
+
+I'm preparing myself on frying pan.
+
+
